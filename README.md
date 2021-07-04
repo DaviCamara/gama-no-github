@@ -1,0 +1,1 @@
+Até agora tem se mostrado um curso bastante completo com um ritmo dinâmico e interessante, pois apresenta os conceitos necessário para se iniciar em projetos de qualquer porte.
